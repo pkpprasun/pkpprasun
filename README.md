@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on youtube
 - 🤔 I’m looking for help with velocityx documention
 - 💬 Ask me about any tech related stuffs
-- 📫 How to reach me:@thunderxies is my insta id:@thunderxies
+- 📫 How to reach me:@thunderxies is my insta id:@thunderxies(https://z-p42.www.instagram.com/thunderxies/?hl=ml)
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I like singing and creating songs.
 -->
